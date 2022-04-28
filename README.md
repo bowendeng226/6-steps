@@ -1,6 +1,6 @@
 # 6-steps
 
-[Six Steps to Freedom](Six%20Steps%20to%20Freedom%20自由六步.md)
+**[Six Steps to Freedom](Six%20Steps%20to%20Freedom%20自由六步.md)**
 
 ## 公众号：通往自由的捷径
 
