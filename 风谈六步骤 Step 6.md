@@ -221,11 +221,11 @@ Each time you release,you are happier and lighter.You have more motivation to go
 做出自由的决定，决定在达到自由之前，不要停下来。
 > <p align="right">——风</p>
  
-> 在六步骤中，你的释放会是持续的，<br>
-在六步骤中，愉悦也是持续增加的。<br>
-不在六步骤中，你就会停下来。<br>
-六步骤没有的，都不需要。<br>
-把它放在身边，<br>
+> 在六步骤中，你的释放会是持续的，<br><br>
+在六步骤中，愉悦也是持续增加的。<br><br>
+不在六步骤中，你就会停下来。<br><br>
+六步骤没有的，都不需要。<br><br>
+把它放在身边，<br><br>
 时刻提醒自己。
 > <p align="right">——风</p>
 
